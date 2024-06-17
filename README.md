@@ -23,4 +23,4 @@
 Feel free to reach out to me for any queries, collaborations, or just to say hi!
 - 📧 Email: prabhatrighthere@gmail.com
 - 💼 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/prabhat-ghimire-8b2ba1280/)
-- 🌐 Website: [GitHub Profile](https://prabhatghimire.info.np)
+- 🌐 Website: [Website Link ](https://prabhatghimire.info.np)
